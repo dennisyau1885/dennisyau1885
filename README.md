@@ -1,1 +1,1 @@
-![d](https://raw.githubusercontent.com/dennisyau1885/dennisyau1885/main/8bit-d.png) Hi, I’m @dennisyau1885
+![d](https://raw.githubusercontent.com/dennisyau1885/dennisyau1885/main/8bit-transparent.gif) Hi, I’m @dennisyau1885
